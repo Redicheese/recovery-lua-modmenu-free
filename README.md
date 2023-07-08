@@ -26,3 +26,4 @@ We dicided leake this for users. they are selling this for over 15$.
 <p>plz do not resell this shit.</p>
 <p>we will not responsible if you got ban.</p>
 <p>we craked this in 3 minutes. as you know, it means they are suck at coding</p>
+<p>its for korean but also you can use translater for this</p>
