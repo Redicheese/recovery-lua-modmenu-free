@@ -1,6 +1,7 @@
 # recovery-lua
 그타.com에서 파는 루아스크립트 입니다.
 재판매는 금지합니다. 해당 샵에서 판매하는 제품 크랙,크랙한 이유는 아래에 올리겠습니다.
+<p><strong>정지당해도 책임 안집니다. 안전한 돈얻기를 원하시면 그타대리.com으로 오십쇼.</strong></p>
 
 # Evolution Modmenu Crack Free Download
 클라우드, 펠릭스 등등을 개발한 사기꾼의 새로운 신작 "에볼루션"을 "다시" 크랙하였습니다.
@@ -19,3 +20,8 @@
 https://redich.tistory.com/2 
 위 블로그 주소에서 다운로드 하시거나 아래 파일 쓰세요 모두 똑같습니다.
 https://cdn.discordapp.com/attachments/1062333280692752434/1127294495541698732/Crack-Ev.zip 
+# English
+We dicided leake this for users. they are selling this for over 15$.
+<p>they're just copier.</p>
+<p>plz do not resell this shit.</p>
+<p>we will not responsible if you got ban.</p>
