@@ -27,3 +27,4 @@ We dicided leake this for users. they are selling this for over 15$.
 <p>we will not responsible if you got ban.</p>
 <p>we craked this in 3 minutes. as you know, it means they are suck at coding</p>
 <p>its for korean but also you can use translater for this</p>
+<p>If you want to buy safe recovery service, https://그타대리.com buy here</p>
